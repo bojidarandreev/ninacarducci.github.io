@@ -1,1 +1,1 @@
-Website adress : https://bojidarandreev.github.io/ninacarducci.github.io/#about
+Website adress : https://bojidarandreev.github.io/ninacarducci.github.io
